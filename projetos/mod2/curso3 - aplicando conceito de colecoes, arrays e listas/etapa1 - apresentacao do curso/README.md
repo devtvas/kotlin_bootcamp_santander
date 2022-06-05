@@ -1,1 +1,1 @@
-Click para ver a apresentacao [pptx](https://docs.google.com/presentation/d/137UXqfsSEcZ5kPME1vdRE2l3hW9G-9cc/edit?usp=sharing&ouid=110133181486988560170&rtpof=true&sd=true) google.
+Para ver a apresentacao [Click](https://docs.google.com/presentation/d/137UXqfsSEcZ5kPME1vdRE2l3hW9G-9cc/edit?usp=sharing&ouid=110133181486988560170&rtpof=true&sd=true).
